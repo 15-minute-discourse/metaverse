@@ -1,4 +1,4 @@
-# Plasma Life Forms: Are Ball Lightning Plasmoids Sentient?
+#  The Metaverse Revolution: Risks, Rewards, and Realities 
 
 Watch the video on YouTube: https://www.youtube.com/watch?v=z7aeh3FX6Yk
 
